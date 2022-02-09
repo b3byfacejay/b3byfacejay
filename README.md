@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @b3byfacejay/Jayden
+- 👀 I’m interested in painting, dancing, and just living life
+-😛im  born in August
+-🥳Imma 2007 baby
+- 📫 You can reach me on Snapchat-@jaythequeen2,  Instagram @unknownprincess.101,  TikTok @b3byface.jay33
+-Located in MO but I love to travel
